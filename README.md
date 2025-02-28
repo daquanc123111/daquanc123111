@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning ... python solution 
 - 💞️ I’m looking to collaborate on ... Team Hunting solution Newsletters 
 - 📫 How to reach me ... Once Online Purchases 
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns: ...Soloist Singing 
+- ⚡ Fun fact: ... please Don't Be A. first Before Any
 
 <!---
 daquanc123111/daquanc123111 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
